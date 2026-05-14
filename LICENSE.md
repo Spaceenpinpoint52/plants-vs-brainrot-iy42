@@ -1,4 +1,4 @@
-#  
+#  plants vs brainrots exclusive Scripts offers the most advanced plants vs brainrots Script, with anti-ban and custom skins. Perfect for dominating any
 
 
 
